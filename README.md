@@ -39,9 +39,8 @@ tomographic imaging, including computed tomography (CT).
 Ryu Egawa
 
 B.S. Applied Mathematics
-San Francisco State University (2022)
+San Francisco State University (2018-2022)
 
 M.S. Analytics
-Georgia Institute of Technology (2028)
 Georgia Institute of Technology (2026–2028)
 
